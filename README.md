@@ -6,8 +6,8 @@ Bright Yanchirah
 
 Interns:
 
-1.
+1. Bismark Gbeze
 
-2.
+2. 
 
 3.
