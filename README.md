@@ -8,6 +8,6 @@ Interns:
 
 1. Bismark Gbeze
 
-2. 
+2. Quarshie Edward
 
 3.
