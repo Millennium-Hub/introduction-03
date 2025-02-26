@@ -10,4 +10,4 @@ Interns:
 
 2. Quarshie Edward
 
-3.
+3. Yahaya Aminu Gunu
